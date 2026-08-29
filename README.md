@@ -1,2 +1,0 @@
-# happy
-cute,for kids
